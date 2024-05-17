@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @ZOKOU-M
 - 👀 I’m interested in ...by the technology
-- 🌱 I’m currently learning ...instagram
+- 🌱 I’m currently learning ...computing
 - 💞️ I’m looking to collaborate on ...and some collaboratorsevec some collaborators
-- 📫 How to reach me ...
+- 📫 How to reach me ...instagram
 - 😄 Pronouns: ...steve
 - ⚡ Fun fact: ...⌨☕
 
